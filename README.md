@@ -2,7 +2,7 @@
 - 👀 I’m interested in cybersecrity
 - 🌱 I’m currently learning 11 
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me 
+- 📫 How to reach me ameen1582007@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
